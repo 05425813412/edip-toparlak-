@@ -1,0 +1,2 @@
+# edip-toparlak-
+Para kazanmak
